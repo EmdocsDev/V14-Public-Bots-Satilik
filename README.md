@@ -37,7 +37,12 @@ https://discord.com/users/1194284044184195103
 ![image](https://github.com/EmdocsDev/V14-Public-Bots-Satilik/assets/161200256/a53cdf4c-472d-4015-a49b-1013a1f7d3e9)
 ![image](https://github.com/EmdocsDev/V14-Public-Bots-Satilik/assets/161200256/896d5521-2ce1-4b11-b03f-80ad13b056ad)
 ![image](https://github.com/EmdocsDev/V14-Public-Bots-Satilik/assets/161200256/631abf8d-ebff-4ba9-96cd-3638db071f88)
-![image](https://github.com/EmdocsDev/V14-Public-Bots-Satilik/assets/161200256/fd95f8aa-b5db-4350-84f1-85e61101df6a)
+![image](https://github.com/EmdocsDev/V14-Public-Bots-Satilik/assets/161200256/1d7b2a30-d002-4439-a003-191b652263f4)
+![image](https://github.com/EmdocsDev/V14-Public-Bots-Satilik/assets/161200256/e5c00f86-6e80-4c04-9446-cf1db0cb1597)
+![image](https://github.com/EmdocsDev/V14-Public-Bots-Satilik/assets/161200256/c0e8d27c-d7f8-4b15-8aa7-a004c671c162)
+
+
+
 
 
 
