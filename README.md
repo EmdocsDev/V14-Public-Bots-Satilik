@@ -1,7 +1,8 @@
 # V14-Public-Bots-Satilik
-Botlarda 2 GUARD
+Botlarda 3 GUARD
 İstediğiniz Kadar Welcome
 1 Stats
+1 Register
 1 Moderasyon Botu bulunmaktadır.
 # İLETİŞİM:
 https://discord.com/users/1194284044184195103
